@@ -2,4 +2,4 @@
 
 **Owner Harmoni Grup Indonesia**
 
-![ttd](/img/ttd%20aa.png)
+![ttd](/img/ttdOwner.jpg)
